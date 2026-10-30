@@ -1,4 +1,4 @@
-## Hi, I'm Charitha
+## Hi, I'm Charithasri
 
 **AI Engineer** · MS Data Science @ University of North Texas (May 2027)
 
